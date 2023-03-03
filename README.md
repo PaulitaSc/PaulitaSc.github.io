@@ -1,0 +1,2 @@
+# PaulitaSc.github.io
+CV PAULA SCHENK - TICMAS - PROYECTO FINAL
